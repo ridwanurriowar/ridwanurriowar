@@ -17,6 +17,7 @@ Perkenalkan, nama saya **Ridwan Nurcholis Rio Wardhana**. Saya merupakan mahasis
 - 🚗🏍️ Dunia Otomotiv (Terutama mobil)
 - 🎨 Dunia Seni (Terutama Desain Grafis dan Animasi)
 - 💻🌐 Dunia Sistem dan Teknologi Informasi (Terutama Web Developer, Robotics, dan Cyber Security)
+- 🎮 Dunia Video Game
 
 ## 📄 Certificate and Stuffs
 
